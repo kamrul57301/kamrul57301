@@ -1,4 +1,3 @@
-(https://scontent.fdac22-1.fna.fbcdn.net/v/t39.30808-6/271601883_298686205567384_6849153303578160171_n.jpg?stp=dst-jpg_s960x960&_nc_cat=109&ccb=1-7&_nc_sid=e3f864&_nc_eui2=AeE9yg2sNYCxsREhTf2KTGSekpNlpoEzHgOSk2WmgTMeA9PT8xu0EM9H3IL-oMGFTCd7_skqh3TJP4Uqx81c89vK&_nc_ohc=IxPhwRyDhusAX9BVeOI&_nc_ht=scontent.fdac22-1.fna&oh=00_AT-_VIGPy-lK335Vshr4zr3wQS1wLul-fE6Z7NZFsfePaQ&oe=62A79B14)
 
 ### Hi there 👋, I am Kamrul
 #### A professional web designer
